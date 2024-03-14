@@ -1,1 +1,1 @@
-Rarn commissions online using your smartphone/ laptop
+Earn commissions online using your smartphone/ laptop
